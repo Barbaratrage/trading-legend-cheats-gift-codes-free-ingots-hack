@@ -1,2 +1,5 @@
-# trading-legend-cheats-gift-codes-free-ingots-hack
-Trading Legend Hack free ingots Mod with Gift Codes Cheats detail guide
+# Trading Legend Hack free ingots Mod with Gift Codes Cheats detail guide
+
+Trading Legend Hack free ingots Mod with Gift Codes Cheats detail guide - Trading Legend codes can get rewards in two ways: from stores or from time capsules. It's worth noting that gems, the game's high-level currency, count as a legendary drop, so don't be surprised if you get one of them instead of a legendary gift. Any Trading Legend cheats you already have will be saved, because once you have enough copies, you can upgrade a hero. The upgrade hero needs XP tokens, which can be obtained from the time capsule, or a certain number of relics can be obtained manually or automatically. The yellow circle around the relic icon indicates the progress. Of course, with the improvement of hero upgrade level, the demand for ingots and replicas will also increase. Rarer heroes consume more ingots. Due to the randomness of hero drop, you may get a large number of copies of a hero for several upgrades, which is only limited by the number of ingots on hand.
+
+<a href="https://yintamod.xyz/trading-legend/">visit here</a>
